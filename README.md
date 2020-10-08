@@ -1,1 +1,1 @@
-# 唯有变化是永恒的。
+# There is nothing permanent except change.
